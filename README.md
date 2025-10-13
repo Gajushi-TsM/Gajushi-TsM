@@ -12,10 +12,11 @@
 
 ⊹ My English is not good so I will reply to you a bit slowly, so please be patient with me :<
 
-𓆩♡𓆪 ` c + h freely, always welcome friends who sit with me
+𓆩♡𓆪 ` c + h freely, always welcome friends who sit with me. No need to ask me first!
 
-Int: All everyone!!
+``Int: All everyone!! I won't bite or eat your Pony, so just come here and be my friend~~
 
+YAAYAYAYAYAYAYAYAYAYAYAYAYAYA!!!
 
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
