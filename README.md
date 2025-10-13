@@ -14,6 +14,9 @@
 
 𓆩♡𓆪 ` c + h freely, always welcome friends who sit with me
 
+Int: All everyone!!
+
+
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
