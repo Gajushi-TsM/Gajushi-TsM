@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/afeb2c2f-694c-47ed-a55b-bbf2090df9e3)
+<img width="736" height="538" alt="Image" src="https://github.com/user-attachments/assets/cf70852a-2f7e-4c80-887b-d67734581fe4" />
 
 
 ୨୧_______________⋆𐙚⋆𖦹._______________୨୧
