@@ -2,6 +2,7 @@
 
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟
+
 ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ
 
 ｡ ﾟ ꒰ঌ 𝙂𝙖𝙟𝙪𝙨𝙝𝙞 <𝙂𝙖𝙟𝙪 𝙤𝙧 𝙅𝙪𝙨𝙝𝙞> ~ 17+ ໒꒱ .ﾟ
@@ -18,8 +19,7 @@
 
 ``Int: All everyone!! I won't bite or eat your Pony, so just come here and be my friend~~ ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 
-YAAYAYAYAYAYAYAYAYAYAYAYAYAYA!!!
->⩊<
+YAAYAYAYAYAYAYAYAYAYAYAYAYAYA!! >⩊<
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
