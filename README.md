@@ -8,7 +8,7 @@
 
 
 
-[Aƚα](https://atabook.org/logout)
+[Aƚα](https://gajushi-tsm.atabook.org/)
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
