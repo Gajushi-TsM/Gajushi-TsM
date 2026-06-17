@@ -3,12 +3,12 @@
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟
 
-[Sƚɾαɯ](https://gajushi-tsm.straw.page)
+ᥫ᭡。[Sƚɾαɯ](https://gajushi-tsm.straw.page)
 
 
 
 
-${\textsf{\color{#9473c8}ᥫ᭡。[Aƚα](https://gajushi-tsm.atabook.org/)}}$
+ᥫ᭡。[Aƚα](https://gajushi-tsm.atabook.org/)
 
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
