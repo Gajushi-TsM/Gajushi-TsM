@@ -1,4 +1,4 @@
-<img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/83c5ab2c-f384-47e8-8dfd-9489510400b8" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/efdf87a4-d253-45a6-9998-ee7a9f1ccdb4" />
 
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟
@@ -8,7 +8,12 @@
 
 
 
-[Aƚα](https://gajushi-tsm.atabook.org/)
+${\textsf{\color{#9473c8}ᥫ᭡。[Aƚα](https://gajushi-tsm.atabook.org/)}}$
+
+
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+
+<img width="736" height="522" alt="Image" src="https://github.com/user-attachments/assets/5f7cc5db-5b57-4e21-9f97-c57255e6f5a3" />
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
