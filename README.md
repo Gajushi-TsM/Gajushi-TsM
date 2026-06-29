@@ -20,7 +20,7 @@ ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶
 
 <img width="736" height="522" alt="Image" src="https://github.com/user-attachments/assets/5f7cc5db-5b57-4e21-9f97-c57255e6f5a3" />
 
-${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ──}}$
+${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆}}$
 
 ${\textsf{\color{#6CCFD2}𝑫𝒐 𝒏𝒐𝒕 𝒄𝒐𝒑𝒚 𝒎𝒚 𝒔𝒌𝒊𝒏/𝒊𝒅𝒆𝒂𝒔 ⸝⸝ 𝑰𝒏𝒔𝒑𝒐 | 𝒂𝒔𝒌 | ᵎᵎ 𝑵𝒐 𝒊𝒏𝒔𝒑𝒐 𝒘𝒊𝒕𝒉𝒐𝒖𝒕 𝒑𝒆𝒓𝒎𝒊𝒔𝒔𝒊𝒐𝒏}}$
 
