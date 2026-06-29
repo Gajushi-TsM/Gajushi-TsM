@@ -1,6 +1,6 @@
 ${\textsf{\color{#9473C8}𝕮𝖆𝖑𝖑 𝖒𝖊 𝕲𝖆𝖏𝖚𝖘𝖍𝖎 ִ ࣪𖤐 𝕲𝖆𝖏𝖚 - 𝕵𝖚𝖘𝖍𝖎}}$
 
-${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$
+${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$
 
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/efdf87a4-d253-45a6-9998-ee7a9f1ccdb4" />
 
