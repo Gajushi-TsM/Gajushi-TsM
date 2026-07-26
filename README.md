@@ -7,10 +7,12 @@ ${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹�
 
 ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟}}$
 
+${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐢 𝐀𝐓𝐀 𝐚𝐝 𝐒𝐓𝐑𝐀𝐖 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
+
 ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Sƚɾαɯ](https://gajushi-tsm.straw.page)
 
 
-${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺}}$
+${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
 
 
 ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/)
