@@ -24,7 +24,7 @@ ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶
 
 ${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆}}$
 
-${\textsf{\color{#6CCFD2}𝑫𝒐 𝒏𝒐𝒕 𝒄𝒐𝒑𝒚 𝒎𝒚 𝒔𝒌𝒊𝒏/𝒊𝒅𝒆𝒂𝒔 ⸝⸝ 𝑰𝒏𝒔𝒑𝒐 | 𝒂𝒔𝒌 | ᵎᵎ 𝑵𝒐 𝒊𝒏𝒔𝒑𝒐 𝒘𝒊𝒕𝒉𝒐𝒖𝒕 𝒑𝒆𝒓𝒎𝒊𝒔𝒔𝒊𝒐𝒏}}$
+${\textsf{\color{#6CCFD2}𝑫𝒐 𝒏𝒐𝒕 𝒄𝒐𝒑𝒚 𝒎𝒚 𝒔𝒌𝒊𝒏⸝⸝ 𝑰𝒏𝒔𝒑𝒐 ᵎᵎ}}$
 
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
