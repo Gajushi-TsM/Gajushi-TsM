@@ -15,7 +15,7 @@ ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/)
 ${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
 
 
-${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[𝙶𝚞𝚗](https://guns.lol/gajushi./)
+${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Gυɳ](https://guns.lol/gajushi./)
 
 
 ${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
