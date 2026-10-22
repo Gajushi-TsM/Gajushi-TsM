@@ -12,21 +12,16 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐢 𝐀𝐓𝐀 𝐚𝐝 𝐒𝐓𝐑𝐀𝐖 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
-${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/)
-
-
-${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
+${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/) 
 
 
 
-<img width="1550" height="1195" alt="Image" src="https://github.com/user-attachments/assets/b0621866-67bb-45e1-bc34-421d6efe0515" />
+<img width="1550" height="1195" alt="Image" src="https://github.com/user-attachments/assets/b0621866-67bb-45e1-bc34-421d6efe0515" /> 
 
-
-
-${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
 
 
 ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Sƚɾαɯ](https://gajushi-tsm.straw.page)
+
 
 
 ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$
