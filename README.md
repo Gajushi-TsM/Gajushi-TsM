@@ -2,7 +2,10 @@ ${\textsf{\color{#9473C8}𝕮𝖆𝖑𝖑 𝖒𝖊 𝕲𝖆𝖏𝖚𝖘𝖍𝖎 
 
 ${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$
 
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/efdf87a4-d253-45a6-9998-ee7a9f1ccdb4" />
+
+
+<img width="2048" height="791" alt="Image" src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb" />
+
 
 
 ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟}}$
@@ -15,7 +18,9 @@ ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/)
 ${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
 
 
-${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Gυɳ](https://guns.lol/gajushi./)
+
+<img width="1550" height="1195" alt="Image" src="https://github.com/user-attachments/assets/b0621866-67bb-45e1-bc34-421d6efe0515" />
+
 
 
 ${\textsf{\color{#D7DA95}⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ >⩊<}}$
@@ -26,7 +31,11 @@ ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Sƚɾαɯ](https://gajushi-tsm.straw.page)
 
 ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$
 
-<img width="736" height="522" alt="Image" src="https://github.com/user-attachments/assets/5f7cc5db-5b57-4e21-9f97-c57255e6f5a3" />
+
+
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/16cd775f-a7f9-445c-a12e-6c71ec1cd372" />
+
+
 
 ${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆}}$
 
