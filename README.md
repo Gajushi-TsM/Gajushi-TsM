@@ -1,5 +1,13 @@
 ${\textsf{\color{#9473C8}𝕮𝖆𝖑𝖑 𝖒𝖊 𝕲𝖆𝖏𝖚𝖘𝖍𝖎 ִ ࣪𖤐 𝕲𝖆𝖏𝖚 - 𝕵𝖚𝖘𝖍𝖎}}$
 
+
+$\color{#648bb5}{Gajushi / Luan 𓏵}$
+
+$\color{#375473}{any}$
+
+$\color{#6CCFD2}{c+h freely}$
+
+
 ${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$
 
 
