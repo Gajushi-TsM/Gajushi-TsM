@@ -5,13 +5,9 @@ $\color{#8dcbbf}{⠀⠀ㅤㅤ⠀ᶻ 𝗓 𐰁⠀⠀Anyㅤㅤ.ᐟㅤʚଓ}$
 $\color{#777590}{ㅤㅤㅤㅤㅤㅤㅤ ISFJ ㅤ ִ ࣪𖤐}$
 
 $\color{#9473C8}{c+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ(˶˃ ꒳ ˂˶)}$
-⠀
-⠀
-⠀
-${\textsf{\color{#D7DA95}⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹}}$
-
-
-
+ㅤ
+ㅤㅤ
+ㅤㅤ
 <img width="2048" height="791" alt="Image" src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb" />
 
 
