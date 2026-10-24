@@ -4,7 +4,7 @@ $\color{#8dcbbf}{⠀⠀ㅤㅤ⠀ᶻ 𝗓 𐰁⠀⠀Anyㅤㅤ.ᐟㅤʚଓ}$
 
 $\color{#777590}{ㅤㅤㅤㅤㅤㅤㅤ ISFJ ㅤ ִ ࣪𖤐}$
 
-$\color{#9473C8}{c+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ(˶˃ ꒳ ˂˶)}$
+$\color{#9473C8}{c+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
 ㅤ
 ㅤㅤ
 ㅤㅤ
@@ -14,9 +14,9 @@ $\color{#9473C8}{c+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ(˶˃ ꒳ ˂˶)}$
 
 ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟}}$
 
-${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐢 𝐀𝐓𝐀 𝐚𝐝 𝐒𝐓𝐑𝐀𝐖 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
+${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
-${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/) 
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
 
 
 
@@ -24,7 +24,7 @@ ${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Aƚα](https://gajushi-tsm.atabook.org/)
 
 
 
-${\textsf{\color{#6CCFD2}ᥫ᭡。}}$[Sƚɾαɯ](https://gajushi-tsm.straw.page)
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ՏԵɾɑա](https://gajushi-tsm.straw.page)
 
 
 
