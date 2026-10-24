@@ -16,7 +16,7 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
-${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
 
 
 
@@ -24,7 +24,7 @@ ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ɑԵɑ](https://gajushi-tsm.atabook.o
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ՏԵɾɑա](https://gajushi-tsm.straw.page)
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ՏԵɾɑա](https://gajushi-tsm.straw.page)
 
 
 
