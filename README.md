@@ -24,7 +24,7 @@ ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ɑԵɑ](https://gajushi-tsm.atabook.o
 
 
 
-${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ՏԵɾɑա](https://gajushi-tsm.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$[ՏԵɾɑա](https://gajushi-tsm.straw.page)
 
 
 
