@@ -8,7 +8,9 @@ $\color{#9473C8}{ㅤㅤㅤㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>�
 ㅤ
 ㅤㅤ
 ㅤㅤ
-<img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb" style="width:100vw;height:100vh;object-fit:contain;position:fixed;inset:0;margin:auto;">
+<center>
+  <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
+</center>
 
 
 
