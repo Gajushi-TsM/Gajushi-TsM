@@ -4,7 +4,7 @@ $\color{#8dcbbf}{⠀⠀ㅤㅤ⠀ᶻ 𝗓 𐰁⠀⠀Anyㅤㅤ.ᐟㅤʚଓ}$
 
 $\color{#777590}{ㅤㅤㅤㅤㅤㅤㅤㅤㅤISFJ ㅤ ִ ࣪𖤐}$
 
-$\color{#9473C8}{ㅤㅤㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
+$\color{#9473C8}{ㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
 ㅤ
 
 ㅤㅤ
@@ -18,7 +18,22 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
-${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+<p align="center">
+
+<a href="[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
+">
+
+<img
+
+src="https://img.shields.io/badge/Ata-
+
+FF5B88?style=flat&labelColor=6ccfd2" />
+
+</a>
+
+</p>
 
 
 
