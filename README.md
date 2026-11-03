@@ -19,7 +19,7 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
 
-${\textsf{\color{#D7DA95}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+${\textsf{\color{#D7DA95}࣪‎˚⊱ 𑁍ࠬܓ ⋆˚}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   <a href="https://gajushi-tsm.atabook.org/">
     <img src="https://img.shields.io/badge/ɑԵɑ-9473C8?style=flat&labelColor=6CCFD2" />
@@ -33,7 +33,7 @@ ${\textsf{\color{#D7DA95}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
-${\textsf{\color{#D7DA95}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
+${\textsf{\color{#D7DA95}࣪‧₊˚♪ 𝄞₊˚⊹}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
   <a href="https://gajushi-tsm.straw.page/">
     <img src="https://img.shields.io/badge/ՏԵɾɑա-777590?style=flat&labelColor=8dcbbf" />
   </a>
