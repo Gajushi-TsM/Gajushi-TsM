@@ -4,9 +4,9 @@ $\color{#8dcbbf}{⠀⠀ㅤㅤ⠀ᶻ 𝗓 𐰁⠀⠀Anyㅤㅤ.ᐟㅤʚଓ}$
 
 $\color{#777590}{ㅤㅤㅤㅤㅤㅤㅤㅤㅤISFJ ㅤ ִ ࣪𖤐}$
 
-$\color{#9473C8}{ㅤㅤㅤㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
+$\color{#9473C8}{ㅤㅤㅤㅤㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
 ㅤ
-ㅤㅤ
+
 ㅤㅤ
 <center>
   <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
@@ -22,7 +22,7 @@ ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ɑԵɑ](ht
 
 
 
-<img width="1550" height="1195" alt="Image" src="https://github.com/user-attachments/assets/b0621866-67bb-45e1-bc34-421d6efe0515" /> 
+<center><img src="https://github.com/user-attachments/assets/b0621866-67bb-45e1-bc34-421d6efe0515" width="100%"></center>
 
 
 
@@ -34,7 +34,7 @@ ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶
 
 
 
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/16cd775f-a7f9-445c-a12e-6c71ec1cd372" />
+<center><img src="https://github.com/user-attachments/assets/16cd775f-a7f9-445c-a12e-6c71ec1cd372" width="100%"></center>
 
 
 
