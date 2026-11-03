@@ -19,7 +19,7 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
 ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[ɑԵɑ](https://gajushi-tsm.atabook.org/) 
+<a href="https://gajushi-tsm.atabook.org/" style="color:#8dcbbf;">ɑԵɑ</a>
 
 
 
