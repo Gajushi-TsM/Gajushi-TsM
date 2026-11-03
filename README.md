@@ -22,7 +22,7 @@ ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 �
 ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   <a href="https://gajushi-tsm.atabook.org/">
-    <img src="https://img.shields.io/badge/ɑԵɑ-8dcbbf?style=flat&labelColor=8dcbbf" />
+    <img src="https://img.shields.io/badge/ɑԵɑ-9473C8?style=flat&labelColor=6CCFD2" />
   </a>
 </p>
 
@@ -33,7 +33,11 @@ ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
-${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ՏԵɾɑա](https://gajushi-tsm.straw.page)
+${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
+  <a href="https://gajushi-tsm.straw.page/">
+    <img src="https://img.shields.io/badge/ՏԵɾɑա-777590?style=flat&labelColor=8dcbbf" />
+  </a>
+</p>
 
 
 
