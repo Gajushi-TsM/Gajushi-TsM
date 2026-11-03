@@ -18,8 +18,13 @@ ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 �
 
 ${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
 
+
 ${\textsf{\color{#6CCFD2}࣪ ִֶָ☾.}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://gajushi-tsm.atabook.org/" style="color:#8dcbbf;">ɑԵɑ</a>
+<p align="center">
+  <a href="https://gajushi-tsm.atabook.org/">
+    <img src="https://img.shields.io/badge/ɑԵɑ-8dcbbf?style=flat&labelColor=8dcbbf" />
+  </a>
+</p>
 
 
 
