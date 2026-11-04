@@ -1,3 +1,11 @@
+
+
+<center>
+  <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
+</center>
+
+
+
 $\color{#6CCFD2}{ㅤㅤᯓᡣ𐭩ㅤ𝑮𝒂𝒋𝒖𝒔𝒉𝒊⠀-⠀𝑮𝒂𝒋𝒖⠀/⠀𝑱𝒖𝒔𝒉𝒊ㅤᝰ.ᐟ}$
 
 $\color{#8dcbbf}{⠀⠀ㅤㅤ⠀ᶻ 𝗓 𐰁⠀⠀Anyㅤㅤ.ᐟㅤʚଓ}$
@@ -11,9 +19,7 @@ $\color{#D7DA95}{ㅤㅤㅤㅤㅤ>ᴗ<☀️١٥٧٤ㅤყoυ .ᐟ •˙⌗ ⊱}$
 
 
 ㅤㅤ
-<center>
-  <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
-</center>
+
 
 
 
