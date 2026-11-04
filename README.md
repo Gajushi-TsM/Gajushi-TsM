@@ -3,6 +3,7 @@
 <center>
   <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
 </center>
+⠀ㅤㅤ
 
 
 
@@ -14,14 +15,10 @@ $\color{#777590}{ㅤㅤㅤㅤㅤㅤㅤㅤㅤISFJ ㅤ ִ ࣪𖤐}$
 
 $\color{#9473C8}{ㅤㅤㅤc+hㅤfreely⠀⠀ㅤ⠀𓏵‧₊˚ ┊ㅤ>⩊<}$
 ㅤㅤ
-
 $\color{#D7DA95}{ㅤㅤㅤㅤㅤ>ᴗ<☀️١٥٧٤ㅤყoυ .ᐟ •˙⌗ ⊱}$
 
 
 ㅤㅤ
-
-
-
 
 ${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟}}$
 
