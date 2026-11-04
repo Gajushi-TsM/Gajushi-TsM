@@ -48,8 +48,7 @@ ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶
 
 
 
-<center><img src="https://github.com/user-attachments/assets/16cd775f-a7f9-445c-a12e-6c71ec1cd372" width="100%"></center>
-
+<center><img src="https://github.com/user-attachments/assets/19bb7a28-94f1-4396-900f-ab743bc1532d" width="100%"></center>
 
 
 ${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆}}$
