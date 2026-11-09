@@ -1,3 +1,13 @@
+<img width="933" height="1770" alt="Image" src="https://github.com/user-attachments/assets/efe6362d-7740-4c36-a2fa-c1efa02fe0eb" />
+
+
+Fuck! Stop copying me! Cut it out right now, you coward! - BLACKLIST -
+
+
+ㅤㅤ
+ㅤㅤ
+ㅤㅤ
+
 <center>
   <img src="https://github.com/user-attachments/assets/6fa329e4-fd32-4424-ad36-f8ce2670aafb">
 </center>
