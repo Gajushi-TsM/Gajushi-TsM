@@ -1,7 +1,7 @@
 <img width="933" height="1770" alt="Image" src="https://github.com/user-attachments/assets/efe6362d-7740-4c36-a2fa-c1efa02fe0eb" />
 
 
-FUCK! STOP COPYING ME! CUT IT OUT RIGHT NOW, YOU COWARD! - BLACKLIST -
+FUCK! STOP COPYING ME! CUT IT OUT RIGHT NOW, YOU COWARD! 
 
 
 ㅤㅤ
