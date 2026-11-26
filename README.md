@@ -20,9 +20,9 @@ $\color{#D7DA95}{ㅤㅤㅤㅤ>ᴗ<☀️١٥٧٤ㅤყoυ .ᐟ •˙⌗ ⊱}$
 
 ⠀ㅤㅤ
 
-${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 𓍯𓂃 𓆝 𓆟 𓆞 𓆝 𓆟}}$
+${\textsf{\color{#D7DA95}𓆝 𓆟 𓆞 𓆝 𓆟 ⢏⢢⣀⡔⡹ 𓆝 𓆟 𓆞 𓆝 𓆟}}$
 
-${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾}}$
+${\textsf{\color{#6CCFD2}𝐒𝐢𝐠𝐧 𝐦𝐲 𝐀𝐭𝐚 𝐚𝐧𝐝 𝐒𝐭𝐫𝐚𝐰 (˵◝ ⩊ ◜˵マ}}$
 
 
 ${\textsf{\color{#D7DA95}࣪‎˚⊱ 𑁍ࠬܓ ⋆˚}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -56,7 +56,7 @@ ${\textsf{\color{#D7DA95}꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶
 
 ${\textsf{\color{#D7DA95}─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆ ── ─── ⋆⋅☆⋅⋆}}$
 
-${\textsf{\color{#6CCFD2}𝑫𝒐 𝒏𝒐𝒕 𝒄𝒐𝒑𝒚 𝒎𝒚 𝒔𝒌𝒊𝒏⸝⸝ 𝑰𝒏𝒔𝒑𝒐 ᵎᵎ}}$
+${\textsf{\color{#6CCFD2}𝑫𝒐 𝒏𝒐𝒕 𝒄𝒐𝒑𝒚 𝒎𝒚 𝒔𝒌𝒊𝒏⸝⸝ 𝑰𝒏𝒔𝒑𝒐 ᵎᵎ ᨳ𐔌՞҂ ˕ ֊՞𐦯ᜊ}}$
 
 <!--
 **Gajushi-TsM/Gajushi-TsM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
